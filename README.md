@@ -1,0 +1,1 @@
+# D-Link-DIR-882-A1-router-firmware-modding
